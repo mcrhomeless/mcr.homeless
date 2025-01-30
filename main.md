@@ -1,6 +1,7 @@
 # Resources
 
-- [Clothing & Food 👕👖🥘🥗](mcr.homeless/clothingandfood.md)  
+- [Weekly Calendar](calendar.html)  
+- [Clothing & Food 👕👖🥘🥗](clothingandfood.md)  
 Medical 🥼💉
 
 
