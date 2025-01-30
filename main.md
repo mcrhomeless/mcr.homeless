@@ -2,7 +2,7 @@
 
 - [Weekly Calendar](calendar.html)  
 - [Clothing & Food 👕👖🥘🥗](clothingandfood.md)  
-Medical 🥼💉
+- [Medical 🥼💉](medical.md)
 
 
 
