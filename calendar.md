@@ -1,19 +1,25 @@
 ## Calendar
 
 ### Monday
-8:15am-12:30am Booth Centre 🥘🥗ℹ
+7:30am-12pm Barnabus 🥘🥗
+
+8:15am-12:30am Booth Centre 🥘🥗
 
 6pm-8pm Coffee4Craig 👕👖🥘🥗
 
 
 
 ### Tuesday
+7:30am-12pm Barnabus 🥘🥗
+
 8:15am-12:30am Booth Centre 🥘🥗
 
 6pm-8pm Coffee4Craig 👕👖🥘🥗
 
 
 ### Wednesday 
+7:30am-12pm Barnabus 🥘🥗
+
 8:15am-12:30am Booth Centre 🥘🥗 
 
 6pm-8pm Coffee4Craig 👕👖🥘🥗
@@ -26,6 +32,8 @@
 
 
 ### Thursday
+7:30am-12pm Barnabus 🥘🥗
+
 8:15am-12:30am Booth Centre 🥘🥗 
 
 10am-11L30an Urban Village Medical Centre Drop in Registration 🥼💉
