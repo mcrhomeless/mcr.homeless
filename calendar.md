@@ -1,5 +1,7 @@
 ## Calendar
 
+ Tues 5pm-8pm, Thurs 10am-12pm
+
 ### Monday
 7:30am-12pm Barnabus 🥘🥗
 
@@ -13,6 +15,8 @@
 7:30am-12pm Barnabus 🥘🥗
 
 8:15am-12:30am Booth Centre 🥘🥗
+
+5pm-8pm Audacious Church 🥘🥗💈
 
 6pm-8pm Coffee4Craig 👕👖🥘🥗
 
@@ -37,6 +41,8 @@
 8:15am-12:30am Booth Centre 🥘🥗 
 
 10am-11L30an Urban Village Medical Centre Drop in Registration 🥼💉
+
+10am-12pm Audacious Church 🥘🥗💈
 
 6pm-8pm Coffee4Craig 👕👖🥘🥗
 
