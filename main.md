@@ -1,6 +1,6 @@
 # Resources
 
-- [Clothing & Food 👕👖🥘🥗](/mcr.homeless/clothingandfood.md)
+- [Clothing & Food 👕👖🥘🥗](/clothingandfood.md)
 Medical 🥼💉
 
 
