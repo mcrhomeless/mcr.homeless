@@ -1,6 +1,6 @@
 # Resources
 
-- [Clothing & Food 👕👖🥘🥗](/clothingandfood.md)
+- [Clothing & Food 👕👖🥘🥗](clothingandfood.md)
 Medical 🥼💉
 
 
