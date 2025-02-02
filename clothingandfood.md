@@ -16,7 +16,9 @@ Edward Holt House, Pimblett Street, M3 1FU
 Mon-Fri
 - Hot Food Breakfast and Lunch
 
-### Cornerstone -104b Denmark Road, Manchester M15 6JS 🥘🥗🚿
+### Cornerstone 
+[map]()
+104b Denmark Road, Manchester M15 6JS 🥘🥗🚿
 https://www.caritassalford.org.uk/service/cornerstone-centre/
 Mon-Fri 10am-3pm
 - Hot and Cold Food
