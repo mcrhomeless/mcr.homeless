@@ -16,11 +16,10 @@ Edward Holt House, Pimblett Street, M3 1FU
 Mon-Fri
 - Hot Food Breakfast and Lunch
 
-### Cornerstone 
-[map]()
-104b Denmark Road, Manchester M15 6JS 🥘🥗🚿
-https://www.caritassalford.org.uk/service/cornerstone-centre/
-Mon-Fri 10am-3pm
+### Cornerstone
+[🗺️]()[link](https://www.caritassalford.org.uk/service/cornerstone-centre/)
+- 104b Denmark Road, Manchester M15 6JS 🥘🥗🚿
+- Mon-Fri 10am-3pm
 - Hot and Cold Food
 - Showers
 
@@ -35,7 +34,8 @@ Mon-Thurs 7:30am-12pm
 - Gloves and Scarves
 
 ### Mustard Tree 👕👖
-[🔗](https://mustardtree.org.uk/)
+[🔗](https://mustardtree.org.uk/)[map](![image](https://github.com/user-attachments/assets/55be638b-1c5d-4a68-9d78-6788259212e0))
+
 mustard t tree manchester
 110 Oldham Road, M4 6AG
 Mon-Sat 10am-2pm
