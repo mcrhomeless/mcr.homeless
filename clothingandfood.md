@@ -2,18 +2,18 @@
 
 ### Coffee4Craig 🚿🥘🥗👕👖
 [🔗](https://www.coffee4craig.org/) [map](https://maps.app.goo.gl/QD2E5RUtkPCTJDH69)
-The Meanwhile, Unit 5, Great Ducie Street,M3 1FB
-Mon-Fri 6pm-8pm
-Sat-Sun 5pm-7pm
+- The Meanwhile, Unit 5, Great Ducie Street,M3 1FB
+- Mon-Fri 6pm-8pm
+- Sat-Sun 5pm-7pm
 - Showers
 - Toiletries
 - Hot Food
 
 ### The Booth Centre 🥘🥗
 [🔗](https://www.boothcentre.org.uk/) [map](https://maps.app.goo.gl/kfMf4LK9Sdo8nfyy8)
-Mon-Fri 08:15-12:30 
-Edward Holt House, Pimblett Street, M3 1FU
-Mon-Fri
+- Mon-Fri 08:15-12:30 
+- Edward Holt House, Pimblett Street, M3 1FU
+- Mon-Fri
 - Hot Food Breakfast and Lunch
 
 ### Cornerstone
@@ -25,8 +25,8 @@ Mon-Fri
 
 ### Barnabus 🥘🥗
 [🔗](https://www.barnabus.org/)
-61 Bloom Street, M1 3LY
-Mon-Thurs 7:30am-12pm
+- 61 Bloom Street, M1 3LY
+- Mon-Thurs 7:30am-12pm
 - Hot food
 - Clothing
 - Blankets
@@ -36,9 +36,9 @@ Mon-Thurs 7:30am-12pm
 ### Mustard Tree 👕👖
 [🔗](https://mustardtree.org.uk/)[map](![image](https://github.com/user-attachments/assets/55be638b-1c5d-4a68-9d78-6788259212e0))
 
-mustard t tree manchester
-110 Oldham Road, M4 6AG
-Mon-Sat 10am-2pm
+### Mustard Tree manchester
+- 110 Oldham Road, M4 6AG
+- Mon-Sat 10am-2pm
 - Applicances
 - Clothing
 - Dried Food 
