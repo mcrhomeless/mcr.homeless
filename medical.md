@@ -1,11 +1,9 @@
 ## Medical 🥼💉 🦷
 
-Dental 🦷 
-Urban Village Medical Centre
-
-Wednesday 9-12.   
-
-0333 3332 3800 8am-10pm
+### Dental 🦷 
+- Urban Village Medical Centre, Old Mill Street, Ancoats, Manchester M4 6EE
+- Wednesday 9-12.   
+- 0333 3332 3800 8am-10pm
 
 
 ### Urban Medical Village
