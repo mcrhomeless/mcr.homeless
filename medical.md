@@ -15,11 +15,9 @@ Wednesday 9-12.
 - 2-4:30pm Drop in Tues/Weds 
 
 ### Manchester Primary Care Partnership
-
-City health centre, Boots walk in centre
-32 Market Street, (2nd floor),M1 1PL
-0161 839 6227
-Emergency GP 8am-8pm
+- City health centre, Boots walk in centre, 32 Market Street, (2nd floor),M1 1PL
+- 0161 839 6227
+- Emergency GP 8am-8pm
 
 
 ### Cheetham Hill Medical Practice
