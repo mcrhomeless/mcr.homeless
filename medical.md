@@ -24,7 +24,7 @@ Wednesday 9-12.
 - 244 Cheetham Hill Road, M8 8UP
 - 0161 277 6939
 
-### Beacon Medicl Practice
+### Beacon Medical Practice
 - 156 victoria avenue, M9 0FN
 - 0161 740 2106
 
