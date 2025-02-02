@@ -9,10 +9,10 @@ Wednesday 9-12.
 
 
 ### Urban Medical Village
-Old Mill Street, Ancoats, Manchester M4 6EE
-0161 272 5656 Mon-Fri 8am-6:30pm
-Drop in registration Thursday 10-11:30am
-Drop in Tues/Weds 2-4:30pm
+- Old Mill Street, Ancoats, Manchester M4 6EE
+- 0161 272 5656 Mon-Fri 8am-6:30pm
+- 10-11:30am Thursday Drop in registration 
+- 2-4:30pm Drop in Tues/Weds 
 
 ### Manchester Primary Care Partnership
 
