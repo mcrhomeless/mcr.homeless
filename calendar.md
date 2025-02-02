@@ -1,6 +1,5 @@
 ## Calendar
 
- Tues 5pm-8pm, Thurs 10am-12pm
 
 ### Monday
 7:30am-12pm Barnabus 🥘🥗
