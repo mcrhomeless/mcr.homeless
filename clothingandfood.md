@@ -25,7 +25,7 @@ Mon-Fri 10am-3pm
 - Showers
 
 ### Barnabus 🥘🥗
-https://www.barnabus.org/
+[link](https://www.barnabus.org/)
 61 Bloom Street, M1 3LY
 Mon-Thurs 7:30am-12pm
 - Hot food
@@ -35,7 +35,7 @@ Mon-Thurs 7:30am-12pm
 - Gloves and Scarves
 
 ### Mustard Tree 👕👖
-https://mustardtree.org.uk/
+[link](https://mustardtree.org.uk/)
 mustard t tree manchester
 110 Oldham Road, M4 6AG
 Mon-Sat 10am-2pm
@@ -46,7 +46,7 @@ Mon-Sat 10am-2pm
 - Gloves and Scarves
 
 ### Lifeshare 🥘🥗
-https://www.lifeshare.org.uk/
+[link](https://www.lifeshare.org.uk/)
 Mosaic Wellbeing Hub, 2 Dale Street,M1 1JW
 Fri-Sun 07:00-09:00am 
 - Hot breakfast 
