@@ -21,3 +21,19 @@ City health centre, Boots walk in centre
 0161 839 6227
 Emergency GP 8am-8pm
 
+
+### Cheetham Hill Medical Practice
+- 244 Cheetham Hill Road, M8 8UP
+- 0161 277 6939
+
+### Beacon Medicl Practice
+- 156 victoria avenue, M9 0FN
+- 0161 740 2106
+
+### Lime Square Medical Practice
+- Ashton Old Road M11 1DA. 
+- 0161 371 0678
+
+### Dr Cunningham & Partners
+- The Valliance Centre, Brunswick Street, M13 9UJ
+- 0161 532 4141
