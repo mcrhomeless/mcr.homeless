@@ -46,9 +46,9 @@
 - Gloves and Scarves
 
 ### Lifeshare 🥘🥗
-[🔗](https://www.lifeshare.org.uk/)
-Mosaic Wellbeing Hub, 2 Dale Street,M1 1JW
-Fri-Sun 07:00-09:00am 
+- [🔗](https://www.lifeshare.org.uk/)
+- Mosaic Wellbeing Hub, 2 Dale Street,M1 1JW
+- Fri-Sun 07:00-09:00am 
 - Hot breakfast 
 
 ### Audacious Church 🥘🥗💈
