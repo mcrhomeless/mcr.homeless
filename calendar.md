@@ -6,7 +6,7 @@
 
 10am-3pm Cornerstone  🥘🥗🚿
 
-8:15am-12:30am Booth Centre 🥘🥗
+8:15am-12:30am [Booth Centre](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#the-booth-centre-)🥘🥗
 
 6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
@@ -16,7 +16,7 @@
 7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
 
 
-8:15am-12:30am Booth Centre 🥘🥗
+8:15am-12:30am [Booth Centre](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#the-booth-centre-)🥘🥗
 
 10am-3pm Cornerstone  🥘🥗🚿
 
@@ -29,7 +29,7 @@
 7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
 
 
-8:15am-12:30am Booth Centre 🥘🥗 
+8:15am-12:30am [Booth Centre](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#the-booth-centre-)🥘🥗
 
 6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
@@ -46,7 +46,7 @@
 7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
 
 
-8:15am-12:30am Booth Centre 🥘🥗 
+8:15am-12:30am [Booth Centre](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#the-booth-centre-)🥘🥗
 
 10am-3pm Cornerstone  🥘🥗🚿
 
@@ -58,7 +58,7 @@
 
 
 ### Friday
-8:15am-12:30am Booth Centre 🥘🥗
+8:15am-12:30am [Booth Centre](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#the-booth-centre-)🥘🥗
 
 7:00-9am Lifeshare 🥘🥗
 
