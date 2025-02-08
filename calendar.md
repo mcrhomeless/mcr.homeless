@@ -21,7 +21,7 @@
 
 5pm-8pm Audacious Church 🥘🥗💈
 
-6pm-8pm Coffee4Craig 👕👖🥘🥗
+6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
 
 ### Wednesday 
@@ -29,7 +29,7 @@
 
 8:15am-12:30am Booth Centre 🥘🥗 
 
-6pm-8pm Coffee4Craig 👕👖🥘🥗
+6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
 10am-3pm Cornerstone  🥘🥗🚿
 
@@ -51,7 +51,7 @@
 
 10am-12pm Audacious Church 🥘🥗💈
 
-6pm-8pm Coffee4Craig 👕👖🥘🥗
+6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
 
 ### Friday
@@ -61,7 +61,7 @@
 
 10am-3pm Cornerstone  🥘🥗🚿
 
-6pm-8pm Coffee4Craig 👕👖 🥘🥗
+6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
  
 
 
