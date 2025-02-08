@@ -8,7 +8,7 @@
 
 8:15am-12:30am Booth Centre 🥘🥗
 
-6pm-8pm Coffee4Craig 👕👖🥘🥗
+6pm-8pm [Coffee4Craig](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#coffee4craig-)👕👖🥘🥗
 
 
 
