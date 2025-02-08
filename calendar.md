@@ -2,7 +2,7 @@
 
 
 ### Monday
-7:30am-12pm Barnabus 🥘🥗
+7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
 
 10am-3pm Cornerstone  🥘🥗🚿
 
@@ -13,7 +13,8 @@
 
 
 ### Tuesday
-7:30am-12pm Barnabus 🥘🥗
+7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
+
 
 8:15am-12:30am Booth Centre 🥘🥗
 
@@ -25,7 +26,8 @@
 
 
 ### Wednesday 
-7:30am-12pm Barnabus 🥘🥗
+7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
+
 
 8:15am-12:30am Booth Centre 🥘🥗 
 
@@ -41,7 +43,8 @@
 
 
 ### Thursday
-7:30am-12pm Barnabus 🥘🥗
+7:30am-12pm [Barnabus](https://github.com/mcrhomeless/mcr.homeless/blob/main/clothingandfood.md#barnabus-) 🥘🥗
+
 
 8:15am-12:30am Booth Centre 🥘🥗 
 
