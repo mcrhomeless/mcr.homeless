@@ -33,10 +33,9 @@
 - Shows
 - Gloves and Scarves
 
+
 ### Mustard Tree 👕👖
 [🔗](https://mustardtree.org.uk/)[🗺️](![image](https://github.com/user-attachments/assets/55be638b-1c5d-4a68-9d78-6788259212e0))
-
-### Mustard Tree manchester
 - 110 Oldham Road, M4 6AG
 - Mon-Sat 10am-2pm
 - Applicances
