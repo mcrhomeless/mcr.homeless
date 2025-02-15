@@ -5,6 +5,9 @@ So, dont moan if you have to wait for food or they dont have a sleeping bag to h
 - [Weekly Calendar](calendar.md)  
 - [Clothing & Food 👕👖🥘🥗](clothingandfood.md)  
 - [Medical 🥼💉](medical.md)
+- Phone/Internet
+- Council Teams
+- 
 
 
 
