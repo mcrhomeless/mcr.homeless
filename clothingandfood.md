@@ -1,6 +1,6 @@
 ## Clothing & Food
 
-### Coffee4Craig 🚿🥘🥗👕👖🧦🩲
+### Coffee4Craig 🚿🥘🥗👕👖🧦🩲✉️medical🚑🩺☕️🍪
 [🔗](https://www.coffee4craig.org/) [🗺️](https://maps.app.goo.gl/QD2E5RUtkPCTJDH69)
 - The Meanwhile, Unit 5, Great Ducie Street,M3 1FB
 - Mon-Fri 6pm-8pm
@@ -9,7 +9,7 @@
 - Toiletries
 - Hot Food
 
-### The Booth Centre 🥘🥗
+### The Booth Centre 🥘🥗☕️🍪✉️
 [🔗](https://www.boothcentre.org.uk/) [🗺️](https://maps.app.goo.gl/kfMf4LK9Sdo8nfyy8)
 - Mon-Fri 08:15-12:30 
 - Edward Holt House, Pimblett Street, M3 1FU
@@ -44,7 +44,7 @@
 = Furniture
 - Gloves and Scarves
 
-### Lifeshare 🥘🥗
+### Lifeshare 🥘🥗☕️🥓🍳
 - [🔗](https://www.lifeshare.org.uk/)
 - Mosaic Wellbeing Hub, 2 Dale Street,M1 1JW
 - Fri-Sun 07:00-09:00am 
